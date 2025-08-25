@@ -1,3 +1,3 @@
-- Im @4ERN0G0L0WKA
+- Im @likviditymur
 - Im interested in games
-- Tg: @likviditymurr / ds: 4ern0g0l0wka
+- Tg: @likviditymur / ds: likviditymurr
